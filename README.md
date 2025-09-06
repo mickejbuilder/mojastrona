@@ -1,1 +1,1 @@
-# mojastrona
+# lubię programować strony internetowe
